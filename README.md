@@ -1,1 +1,0 @@
-# caykresponsividadeptr2
